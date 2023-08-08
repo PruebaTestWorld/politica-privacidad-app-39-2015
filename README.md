@@ -1,1 +1,0 @@
-# politica-privacidad-app-39-2015
